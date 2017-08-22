@@ -1,3 +1,4 @@
 # Scarlett Johansson
-# Morgan Freeman
+# Yugi Moto
 # Denzel Washington
+# Rurounin No Kenshin
